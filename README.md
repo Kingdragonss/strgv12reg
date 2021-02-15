@@ -1,0 +1,1 @@
+# strgv12reg
